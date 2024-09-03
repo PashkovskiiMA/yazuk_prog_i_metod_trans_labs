@@ -1,0 +1,1 @@
+# yazuk_prog_i_metod_trans_labs
